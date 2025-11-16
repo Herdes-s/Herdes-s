@@ -45,7 +45,7 @@ Utilizo **Windows** como meu sistema principal, mas sempre aberto a explorar out
 
 ## 💻 Projetos
 
-**No meu perfil tem varios projetos!.
+**No meu perfil tem varios projetos!.**
 
 ---
 
